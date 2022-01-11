@@ -8,8 +8,8 @@
 
 1. LinkedIn: https://www.linkedin.com/in/gargaakash232/
 2. Medium: https://medium.com/@gargaakash232
-3. Facebook: 
-4. Instagram: 
+3. Facebook: https://www.facebook.com/gargaakash232/
+4. Instagram: https://www.instagram.com/gargaakash232/
 5. Twitter: https://twitter.com/gargaakash232
 6. Kaggle: https://www.kaggle.com/gargaakash232
 7. HackerRank: https://www.hackerrank.com/gargaakash232?hr_r=1
